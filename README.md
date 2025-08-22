@@ -1,10 +1,9 @@
-# 👨‍💻 Mukesh T  
+# Mukesh T  (Cyber Security and DevOps Engineer)
 
 **DevOps & Cloud Engineer | Cybersecurity Enthusiast | Blockchain Innovator**  
 
 📍 Nagapattinam, Tamil Nadu, India  
-📧 [mukesh.thiyagarajan.004@gmail.com](mailto:mukesh.thiyagarajan.004@gmail.com)  
-📱 +91 7598270373  
+📧 Mail(mailto:mukesh.thiyagarajan.004@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/mukesh-t-032b26248/) | [GitHub](https://github.com/mukesh-1608)  
 
 ---
