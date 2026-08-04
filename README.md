@@ -1,4 +1,3 @@
-
 **DevOps & Cloud Engineer | Cybersecurity Enthusiast | Blockchain Innovator**  
 
 📍 Nagapattinam, Tamil Nadu, India  
